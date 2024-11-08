@@ -1,0 +1,3 @@
+Donno what am I doing in my life rn...
+
+Why not make chess???
